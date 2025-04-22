@@ -1,4 +1,6 @@
-# Chat-Verlauf und Anleitung
+# Chat-Verlauf und Anleitung!
+[Bildschirmfoto 2025-04-22 um 23 04 59](https://github.com/user-attachments/assets/3459b52d-51f2-4d5b-a0b5-8be39d6736dd)
+
 
 **Datum:** 2025-04-22  
 **Benutzer:** @hubrichc  
